@@ -38,3 +38,6 @@ Não Técnicas
 🚀 Projetos
 🔹 Sistema de Controle de peso
 
+
+CONTATO: jose261192@gmail.com
+
